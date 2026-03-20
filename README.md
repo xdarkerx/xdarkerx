@@ -6,7 +6,7 @@
 
 ###
 
-<img align="right" height="150" src="https://imgflip.com/s/meme/Waiting-Skeleton.jpg"  />
+<img align="right" height="150" src="https://media.tenor.com/NeJfHqkmdMIAAAAj/tux-linux-penguin.gif"  />
 
 ###
 
